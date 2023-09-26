@@ -1,4 +1,4 @@
-<img src="https://user-images.githubusercontent.com/63905637/145709095-4f7e73cb-e52e-44fa-99a5-58a96ac4ff0c.gif" align="center">
+<img src="https://user-images.githubusercontent.com/63905637/145709095-4f7e73cb-e52e-44fa-99a5-58a96ac4ff0c.gif" align="centre">
 <h1 align="center">Hi 👋, I'm Himanshu Kumar Modi</h1>
 <h3 align="center">A passionate Full-Stack Developer from India</h3>
 <h3 align="center"> MySQL, MongoDB, JavaScript </h3>
