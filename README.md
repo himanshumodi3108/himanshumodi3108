@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **31august2001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RrHLBKbF-3kudPzs4EzZV-2dnH8HaClF/view?usp=sharing](https://drive.google.com/file/d/1RrHLBKbF-3kudPzs4EzZV-2dnH8HaClF/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing](https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
