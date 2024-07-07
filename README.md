@@ -6,7 +6,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=himanshumodi3108&label=Profile%20views&color=0e75b6&style=flat" alt="himanshumodi3108" /> </p>
 
 - 👨‍💻 My portfolio **https://himanshumodi.vercel.app/**
-- 📫 How to reach me **31august2001@gmail.com**
+- 📫 How to reach me **himanshukumar.modi2021@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing](https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing)
 
