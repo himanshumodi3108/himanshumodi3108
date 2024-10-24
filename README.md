@@ -8,7 +8,7 @@
 - 👨‍💻 My portfolio **https://himanshumodi.vercel.app/**
 - 📫 How to reach me **himanshukumar.modi2021@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing](https://drive.google.com/file/d/17sQ-lHIUOmQ0NxlBIC6JXuRW1-bWZ3Pq/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uQJHYmlBP2Z9b8YsyZtVRak1QYiwxGdo/view?usp=sharing](https://drive.google.com/file/d/1uQJHYmlBP2Z9b8YsyZtVRak1QYiwxGdo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
